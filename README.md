@@ -1,0 +1,1 @@
+# hscar_privacy_policy
